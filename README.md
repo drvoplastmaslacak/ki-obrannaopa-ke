@@ -1,2 +1,2 @@
 # ki-obrannaopa-ke
-Reverse umbrella greenhouse shade with watertank optionality. Hydraulic controlled 
+Reverse umbrella greenhouse shade is a type of greenhouse shade that is designed to protect plants from the harsh rays of the sun. The shade is made up of a series of panels that can be opened and closed to allow for the desired amount of sunlight to reach the plants. The shade can also be equipped with a water tank, which can be used to provide the plants with additional moisture.
